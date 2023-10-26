@@ -1,1 +1,1 @@
-6yu6y6yty
+tine mag sorry sa jowa niya
